@@ -1,4 +1,7 @@
 business ops analyst
+
+it's time to lock in
+
 [LinkedIn](https://www.linkedin.com/in/chan-lawee)
 
 
